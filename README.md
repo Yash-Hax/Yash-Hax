@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @Yash-Hax<br>
-- 👀 I’m an Ethical Hacker, Penetration Tester, Bug Bounty Hunter, Security Researcher and developer. 
-- 📫 How to reach me : Instagram , Linkedin , Facebook , Twitter 
+- 👀 I’m Cyber Security Expert 
